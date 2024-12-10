@@ -158,6 +158,26 @@ un/in/im/dis/ab/il
 
 ## 1. radi(根)
 
+植物的根 是发散的
+
+地就是 根
+
+![image-20241210194332271](C:/Users/%E9%B2%B8%E4%BA%91%E9%9B%BE%E8%B5%B7/Desktop/%E5%AD%A6%E4%B9%A0%E7%AC%94%E8%AE%B0/English/assets/image-20241210194332271.png)
+
+1.radical根本的
+
+2.eradicate 根除
+
+3.radiate 辐射/发射;使显现
+
+4.radiant 辐射的;容光焕发的
+
+5.radio 收音机
+
+6.radioactive 放射性的
+
+7.radium 镭
+
 
 
 ## 2. pose(摆放)
