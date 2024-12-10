@@ -162,6 +162,24 @@ un/in/im/dis/ab/il
 
 ## 2. pose(摆放)
 
+![image-20241210193945221](C:/Users/%E9%B2%B8%E4%BA%91%E9%9B%BE%E8%B5%B7/Desktop/%E5%AD%A6%E4%B9%A0%E7%AC%94%E8%AE%B0/English/assets/image-20241210193945221.png)
+
+
+
+1.expose 暴露  = disclose = reveal = uncover
+
+2.compose 组成/创造/创作 
+
+​	composition 作品
+
+3.propose 求婚/提议/建议
+
+4.dispose 丢弃/处理/安排
+
+5.oppose 反对
+
+6.depose 废除
+
 
 
 ## 3. vers(t) 转
