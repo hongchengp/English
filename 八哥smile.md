@@ -137,3 +137,52 @@ internet 互联网
 ## 12.否定前缀
 
 un/in/im/dis/ab/il
+
+
+
+
+
+# 后缀
+
+
+
+表达词性
+
+
+
+
+
+# 词根
+
+
+
+## 1. radi(根)
+
+
+
+## 2. pose(摆放)
+
+
+
+## 3. vers(t) 转
+
+![image-20241210193740931](C:/Users/%E9%B2%B8%E4%BA%91%E9%9B%BE%E8%B5%B7/Desktop/%E5%AD%A6%E4%B9%A0%E7%AC%94%E8%AE%B0/English/assets/image-20241210193740931.png)
+
+
+
+reverse 扭转
+
+avert 转移(注意力);避免 alert 警惕/提醒
+
+convert 转变 = transform = shift
+
+divert 转移/改道  diverse 多样性
+
+introvert 内向
+
+extrovert 外向
+
+anniversary 周年纪念
+
+controversy 争论
+
